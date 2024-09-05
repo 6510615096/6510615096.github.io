@@ -1,4 +1,4 @@
-## Introduce mysalf
+## Introduce myself
 - Name : Nutpupicha Arungornpasuruk
 - Nickname : Nurse
 - Date of Birth : March,6 2003 
